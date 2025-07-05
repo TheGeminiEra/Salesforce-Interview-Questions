@@ -1,0 +1,10 @@
+🚨 Deloitte Salesforce Interview – 2025
+![DELOITTE SALESFORCE DEVELOPER](https://github.com/user-attachments/assets/d741bc67-7c92-404f-aeb5-d5ecd8eadee6)
+![management system (OMS) and also receive order status](https://github.com/user-attachments/assets/56afb0e9-512c-40b2-838f-1157dd279ec2)
+![rivate String status;](https://github.com/user-attachments/assets/b8b6661e-1377-4860-b8a1-d54b3778be05)
+![1750355730487](https://github.com/user-attachments/assets/49146461-76c7-40d7-840e-b752de2b1207)
+![c Lastaw, E tnisus)](https://github.com/user-attachments/assets/3ddbf872-dc00-41ad-ab42-72c47e946099)
+![tete, Private,](https://github.com/user-attachments/assets/bcfcd4ba-fb68-4d1c-ad50-12cf373ce4c9)
+![1750355730777](https://github.com/user-attachments/assets/e2b8c31f-f88b-476d-9c5e-3f4402be52cf)
+![When an Account is updated in Salesforce, the update should](https://github.com/user-attachments/assets/28e5a162-0c95-481e-a6ca-8859952731ce)
+![1750355730605](https://github.com/user-attachments/assets/d17b239a-fef1-4664-b86e-169641f17c5b)
