@@ -1,11 +1,9 @@
-🔐 12 REAL Salesforce Developer Scenarios That Got Me Shortlisted at HCL, Accenture, TCS (2025)
-
-￼
-￼
-￼
-￼
-￼
-￼
-￼
-￼
-
+🔐 12 REAL Salesforce Developer Scenarios That Got Me Shortlisted at HCL (2025)
+![HCL  Tech](https://github.com/user-attachments/assets/787277fc-6261-4702-9487-03f8e1e8ac86)
+![2 Straudo Qundice](https://github.com/user-attachments/assets/1edabbc1-1c9c-45e7-a749-0414e9a59bda)
+![ Cey cceite teada eikerve hge fe bel geodfendctom](https://github.com/user-attachments/assets/43e76995-be9d-4c51-a459-5659491730e0)
+![1751309074543](https://github.com/user-attachments/assets/250ba062-b219-41a1-9efd-e53f6438a825)
+![1751309073719](https://github.com/user-attachments/assets/5342d4ff-3901-4fab-bb6a-5ac1621d5587)
+![1751309073610](https://github.com/user-attachments/assets/b3e894e0-696f-4245-b85e-aaa05c97b1fc)
+![1751309073847](https://github.com/user-attachments/assets/10826868-d864-435f-b494-e65e207156f6)
+![catebateta Keetya aaageny hy anue](https://github.com/user-attachments/assets/684d0682-77ca-4ddb-9a91-e5acf76ff7d8)
