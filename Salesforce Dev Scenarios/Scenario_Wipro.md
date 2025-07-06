@@ -7,3 +7,7 @@
 ![2 EAtAmer  My  es- NS- Bare 1ELCNENpEE3](https://github.com/user-attachments/assets/e99402e9-1378-4caa-a6dc-fbd554570159)
 ![pute bar, fetedetee layt e enoiyte neicion cin](https://github.com/user-attachments/assets/b6b83df7-b3cd-4bef-a719-b3fae0c45da3)
 ![1750701466961](https://github.com/user-attachments/assets/6e5c747a-9fcb-464a-82b7-77c9c9d18166)
+![Salesforce Developer Questions - Wipro](https://github.com/user-attachments/assets/d045fc3c-c604-4d51-b5ba-8912b1b16b4e)
+![Te seal compenst sures if possibie like ProdaxiCard Modal, dt6](https://github.com/user-attachments/assets/0f26fcad-a13f-4b33-9da2-71d7f2c72df9)
+![(ba cat in the in milies to control excusin or a savi](https://github.com/user-attachments/assets/241b892b-2a15-4a6c-a508-d0d88e2bdb9c)
+![Nemike Ducatuse Suicial if you aggroza data berween busches,](https://github.com/user-attachments/assets/a77ae4a0-b2d6-443f-a209-75c5418038e3)
